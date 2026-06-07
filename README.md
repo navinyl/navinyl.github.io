@@ -1,2 +1,2 @@
-# neo's site
-2023-2026
+# neo's republic
+est. 6/10/2023

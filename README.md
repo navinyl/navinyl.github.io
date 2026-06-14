@@ -1,2 +1,2 @@
-# neo's republic
-est. 6/10/2023
+# navinyl's republic
+est. 2023
